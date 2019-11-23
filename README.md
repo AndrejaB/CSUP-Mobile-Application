@@ -20,7 +20,7 @@ Two red flags, however, means that the water is closed to swimming, as condition
 
 You can also find other beach warning signals with different messages
 
-![](https://www.hoteleleven.me/media/k2/items/cache/852967248dd3e6cb3942a1fe6af42945_L.jpg)
+![](https://cdn.travelpulse.com/images/99999999-9999-9999-9999-999999999999/078056a3-ad68-9a0c-ec5c-e7c288add5a8/630x355.png)
 
 
 ### Logical View
