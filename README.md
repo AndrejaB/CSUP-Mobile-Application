@@ -31,3 +31,5 @@ You can also find other beach warning signals with different messages
 ### Technology Stack
 
 * Describe here technology stack you are using.
+
+andreja init
