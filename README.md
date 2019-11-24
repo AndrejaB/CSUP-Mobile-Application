@@ -16,7 +16,7 @@ Red -   It's forbidden to swim.
 Red Flags :
 The most serious of all beach warning flags, red flags warn swimmers of severe hazards in the water. One red flag means that the swimmers is high or there are dangerous currents or both. Though you can still swim if there is a red flag, you should use extreme caution and go in the water only if you’re a keen swimmer.
 Two red flags:
-Two red flags, however, means that the water is closed to swimming, as conditions are too dangerous for even the strongest swimmers. In some communities, red flags feature the symbol of a swimmer with a white line through it, indicating that swimming is prohibited.
+Two red flags, however, means that the water is closed to swimming, as conditions are too dangerous for even the strongest swimmers. In some communities, red flags pfeature the symbol of a swimmer with a white line through it, indicating that swimming is prohibited.
 
 You can also find other beach warning signals with different messages
 
